@@ -1,0 +1,2 @@
+# B-I-T-P-L-N-L-P-TR-NH-TR-N-WINDOWS
+PHẦN MỀM QUẢN  LÝ THƯ VIỆN C#
